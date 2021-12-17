@@ -1,2 +1,5 @@
-# milkchoco-cheat-free-diamonds-generator
-MilkChoco Cheat free diamonds and coins generator aimbot hacks 2022
+# MilkChoco Cheat free diamonds and coins generator aimbot hacks 2022
+
+MilkChoco Cheat free diamonds and coins generator aimbot hacks 2022 - In fact, there are many milkchoco unblocked scripts settings that can be modified, but at present, the most important are control and sensitivity. Please note that under the control settings, you have 3 default options to choose from, depending on whether you like to use the fixed button to move and trigger. Click the "Customize" button and select Modify preferred control settings. In fact, you have a lot of freedom about how to change the overall layout. In addition to dragging and dropping or moving the position of each button through the virtual d-pad at the top of the screen, you can also adjust the size, opacity or visibility of the button. Remember to save your changes before exiting. Another important point you can adjust is the sensitivity of your movement and aiming. Please note that the camera and the sight (ads) have separate settings, which you can adjust freely according to your preferences!
+
+<a href="https://windmod.icu/milkchoco/">check now</a>
